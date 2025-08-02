@@ -1,1 +1,1 @@
-# www.amtradingandbuildingcompany.com
+amtradingandbuildingcompany.com
